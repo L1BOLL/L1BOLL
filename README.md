@@ -1,1 +1,1 @@
-"Homo liber nulla de re minus quam de morte cogitat; et ejus sapientia non mortis sed vitae meditatio est"
+*"A free man thinks of nothing less than of death, and his wisdom is a meditation not on death, but on life"*, Baruch Spinoza's Ethics, Part IV, Proposition 67.
